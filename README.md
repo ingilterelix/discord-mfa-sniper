@@ -3,4 +3,4 @@ oncelikle selamun aleyküm gençler, ben __ingiltereli__ biliyorsunuz uzun zaman
 🤜🙃
 __zons - duck - rush - ingiltereli__
 discord.gg/arabistan
-discord.gg/1937**
+discord.gg/1937
