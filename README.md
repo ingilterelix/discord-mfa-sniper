@@ -4,4 +4,3 @@ bu botu publama sebebimiz bizim botumuzla bizden prim almaya çalışıyorsunuz 
 
 __zons - duck - rush - ingiltereli__
 discord.gg/arabistan
-discord.gg/1937
